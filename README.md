@@ -1,2 +1,2 @@
-# The Graphic Desegn Proincipal Project
+# The Graphic Design Principal Project
 
